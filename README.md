@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @abeauche
-- 👀 I’m interested in Arctic and insect ecology in the context of global climate change
+- 👀 I’m interested in studying Arctic and insect ecology in the context of global climate change
 - 🌱 I’m working to understand how global change alters plant and insect communities in the Western Canadian Arctic with @teamshrub
 - 📫 Reach me at alexbeau@student.ubc.ca or at my personal email abeauche@gmail.com!
 - 😄 Pronouns: he/him/il
